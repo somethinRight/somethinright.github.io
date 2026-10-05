@@ -1,1 +1,0 @@
-# somethinright.github.io
